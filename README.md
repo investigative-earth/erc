@@ -1,6 +1,6 @@
 # The Environmental Reporting Collective  
 
-wwww.investigative.earth
+www.investigative.earth
 
 Who we are
 
