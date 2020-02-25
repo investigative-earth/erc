@@ -1,5 +1,7 @@
 # The Environmental Reporting Collective  
 
+wwww.investigative.earth
+
 Who we are
 
 We are a group of investigative journalists from different continents. Our mission is to collaborate to tell stories of how our societies and economies impact nature. We are committed to producing quality journalism through local reporting and global collaboration and share our experiences to the professional journalism industry.
